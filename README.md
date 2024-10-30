@@ -1,4 +1,4 @@
-- 👋 Oi eu sou @Arthur-Borra
+- 👋 Oi eu sou @Arthur-Barros
 - 👀 estou interessado em aprender
 - 🌱 Atualmente estou aprendendo informática 
 - 💞️ Estou procurando colaborar com marketing 
